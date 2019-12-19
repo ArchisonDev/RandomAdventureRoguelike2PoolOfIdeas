@@ -31,6 +31,6 @@ Thank you everyone who has been supporting the game in any way (reviews in Play 
 
 
 ## Coffee?
-I created this Ko-fi page because sometimes people asked me in the past on how to be able to donate me, I wasn't sure if adding this here, but here it is, in case you want to contribute to my caffeine addiction: [DONATE](https://ko-fi.com/archison) - THANKS A LOT!
+I created this Ko-fi page because sometimes people asked me in the past on how to be able to donate me, I wasn't sure if adding this here, but here it is, in case you want to contribute to my caffeine addiction: [BUY ME A KO-FI](https://ko-fi.com/archison) - THANKS A LOT!
 
 
